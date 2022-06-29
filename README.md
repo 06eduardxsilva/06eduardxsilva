@@ -1,3 +1,3 @@
--  Hi, I’m @06eduardxsilva
--  I'm interested in music, dancing, sweets
--  you can find me at larissa.eduarda.silva@escola.pr.gov.br
+-  Eu sou @06eduardxsilva
+-  Gosto de musicam
+Voce tambem pode me encontrar em larissa.eduarda.silva@escola.pr.gov.br
