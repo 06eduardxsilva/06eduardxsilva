@@ -1,3 +1,3 @@
--  Eu sou @06eduardxsilva
--  Gosto de musica
+-  Eu sou @eduarda_lari_
+- musica
 -  Voce tambem pode me encontrar em larissa.eduarda.silva@escola.pr.gov.br
